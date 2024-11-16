@@ -1,0 +1,5 @@
+- 👋 Ahoj ja som NickGamer
+- 👀 Zaujímam sa o programovanie
+- 🌱 Aktuálne sa učím python, batch
+- 📫 Ako mi napísať: na moju emailovu adresu robloxytbussines@outlook.com
+- 😄 Vyslovujem sa: NikGejmr
